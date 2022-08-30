@@ -1,4 +1,0 @@
-asldasldasld
-asşlkdaşlsa
-<eksikbody>
-saşsalkdsdlasfk
